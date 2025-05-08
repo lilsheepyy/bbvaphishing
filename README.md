@@ -21,4 +21,5 @@
 
 ⛔️ Sistema de baneos personalizable – Tú decides cómo, quién y cuándo.
 
-[t.me/](https://t.me/phishingespain)
+Contactame en:
+[https://t.me/phishingespain](https://t.me/phishingespain)
